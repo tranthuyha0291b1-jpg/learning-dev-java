@@ -3,3 +3,4 @@ java là gì?
 python là gì?
 học ở đâu?
 cần kiến thức gì để học python ?
+mai nghỉ học
