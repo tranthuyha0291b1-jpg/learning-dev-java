@@ -10,3 +10,21 @@ fr jytujytjtyjty  ty jtyjtyj
 sdvds vdsfv dfbdfb dfb df 
 g ngh gh gh mghm ghm ghmgh
 g nghghm gh mghm gm g
+d fb dfb
+dfb
+df
+b
+dfb
+dfb
+df
+bd
+f
+f
+bf
+fd
+fdb
+df
+dbf
+df
+d
+df
