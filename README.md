@@ -5,26 +5,17 @@ học ở đâu?
 cần kiến thức gì để học python ?
 mai nghỉ học
 mai học lại
-sdcs dcsdc sd csdc sdc sdc sdcv bfgbfgdb df
-dfbdfb dfbdfbdfgbdf fdfb dfbdfb d
-d fbdfbdfbdfgbdfbdf bdfbdb d d dfgbdf
-d fbdfbdf bdbdf bdf dfdffg mhm mgf gf
-svsdv sdv sdv sdv sv sdv fg mgfhmghmf
-sdv sdv sdv sdv sdv sdvsdfg mm gfh 
-vsdvsdvs dvsdvsdv sdvsdv svdsdfg mgfmh
-vsdv sdv sdv sdv sdv sdv sdvgf mm fgm gfh
-sd sdv csd fvdsfv  sdv sdvdsv sv s vs
-ds vs dsdsv sd vsdv sdvsdvsdv sd vsdf vsd v
-v svsv d vs vdsvsd vsdv sdv sd vsdv sdv 
-sdv sdv sd vsdvsdv sd vsdv sdvsdv sd vsdv 
-fgh mfg hmfghm fghm fghm mfmf mfgfg mfgh 
- brtbrbr  sv sdv sv sdv s vsv sv sv
-sadcsdc sdc ds sdc sdvdfv dfdfv df vdf
-dfvd fv dfv dfvdv dfv dfv
-dfv dfv dfv dfvdfvd fvdfv df
- dfv dfvdfv dfv dfv dfv dfv dfv dfv d
-  dfv df vdfv dfv dvdfv dfv dfvdfv dfv
-   dfv dfv dfv dfv dfvdfv dfv dfv df df df 
+day 
+day 1
+cretor acc github vs X accdv sdfv 
+viet tieu su, tinhs pointsdvf sdf v
+tạo acc x mới cho hnayds vsdsdv sdv 
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
 học web 3 
 day 1 học 1 bài
 bài 2 học 2 day
