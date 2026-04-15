@@ -5,7 +5,9 @@ học ở đâu?
 cần kiến thức gì để học python ?
 mai nghỉ học
 mai học lại
-day 1
+cretor acc github vs X 
+viet tieu su, tinhs points
+tạo acc x mới cho hnay
 cretor acc github vs X 
 viet tieu su, tinhs points
 tạo acc x mới cho hnay
@@ -15,25 +17,3 @@ nhảy làm gì?
 học nhanh
 làm nhiều
 test nhiều
-làm quen bài học
-day 1
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-làm sao nhảy?
-nhảy làm gì?
-đam mê ko?
-học nhanh
-làm nhiều
-test nhiều
-day 1
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-làm sao nhảy?
-nhảy làm gì?
-đam mê ko?
-học nhanh
-làm nhiều
-test nhiều
-học web 3 
